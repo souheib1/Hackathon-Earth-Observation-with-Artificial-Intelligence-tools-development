@@ -1,0 +1,1 @@
+# Hackathon-Earth-Observation-with-Artificial-Intelligence-tools-development
